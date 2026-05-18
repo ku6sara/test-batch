@@ -21,6 +21,7 @@ C:\YT-DLP
 
 おお
 
+<img width="387" height="313" alt="image" src="https://github.com/user-attachments/assets/0e8ecb06-22d3-47a0-88f8-f463cb8e32e3" />
 
 
 
